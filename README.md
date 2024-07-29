@@ -5,7 +5,7 @@
 
 - ⚡ Fun fact **☕👩‍🍳 "When I'm not brewing up code, you'll find me brewing the perfect cup of coffee or cooking up a storm in the kitchen!"**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:https://www.linkedin.com/in/va1shnavii-s/</h3>
 <p align="left">
 </p>
 
