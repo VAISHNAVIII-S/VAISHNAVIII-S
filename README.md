@@ -3,7 +3,6 @@
 
 - 👯 I’m looking to collaborate on **🌟 Eager to Learn, Ready to Contribute | Seeking Student Internship Opportunities 🌟**
 
-- ⚡ Fun fact **☕👩‍🍳 "When I'm not brewing up code, you'll find me brewing the perfect cup of coffee or cooking up a storm in the kitchen!"**
 
 <h3 align="left">Connect with me: <a href="https://www.linkedin.com/in/va1shnavii-s/" target="_blank" rel="noreferrer">LinkedIn</a></h3>
 
