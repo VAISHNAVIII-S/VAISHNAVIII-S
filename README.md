@@ -4,7 +4,6 @@
 - 👯 I’m looking to collaborate on **🌟 Eager to Learn, Ready to Contribute | Seeking Student Internship Opportunities 🌟**
 
 
-<h3 align="left">Connect with me: <a href="https://www.linkedin.com/in/va1shnavii-s/" target="_blank" rel="noreferrer">LinkedIn</a></h3>
 
 <p align="left">
 </p>
